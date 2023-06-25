@@ -1,4 +1,4 @@
-                                   -- Please look at the ReadMe before reading this -- 
+                                   -- Please look at the ReadMe before reading this and the money one too ) 
 hello there first step - record you an video playing (https://offline-dino-game.firebaseapp.com/) reach level 4,000 
 second step - play cod black ops 3 ( reach level 20 ) record the whole game until at 20
 third step - send 3 dollars to charity ( any charity dont mind ) send an picture after your done
